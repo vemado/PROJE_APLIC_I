@@ -1,0 +1,1 @@
+# PROJE_APLIC_I
